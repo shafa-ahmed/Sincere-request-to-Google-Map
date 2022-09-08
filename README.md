@@ -15,6 +15,6 @@ I am not sure whether this would be a very successful feature or not. But if it 
 
 
 
-Thansk and Kind Regards
+Thanks and Kind Regards
 Shafa Ahmed
 9718320763
